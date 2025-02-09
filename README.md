@@ -84,7 +84,10 @@ A. Smriti Mandhana will lead the RCB squad 2025 in the upcoming WPL season.
 **Q3. Where will RCB play their home matches in WPL 2025?**  
 A. RCB’s home matches will be played at the M. Chinnaswamy Stadium in Bengaluru.
 
+## Watch RCB WPL 2025 Highlights
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hON4gpakWWM" frameborder="0" allowfullscreen></iframe>
+
 ---
 
 **Meta Description:** Are you ready for an action-packed season as RCB WPL schedule 2025 is just around the corner? If yes, from match schedules to squad details and key venues, we’ve got everything you need to know. Let’s find out.
-
